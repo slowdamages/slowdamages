@@ -1,4 +1,4 @@
-**𓂁𓂄** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=213d31&rightColor=6b1111&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀ ͜ all ***my*** info ***!!***
+**𓂁𓂄** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=294038&rightColor=701313&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀ ͜ all ***my*** info ***!!***
 <p align="center"> <sup><b><a href="https://anaxa.straw.page">strawpage</a>...　 ‎ my links˒</b> ‎  ‎  ‎ <a href="https://rentry.co/yaoshi">rentry</a> 　╱　　<a href="https://rentry.co/trust">other</a>　</sup> <br>
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled3_20260301224322.png"/>
 <br><sub>🩸.݁˖ : </sub> name me. I am <b>19</b>! <sup>(15/07)</sup> . italian.<br>
