@@ -3,9 +3,9 @@
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled3_20260301224322.png"/>
 <br><sub>🩸.݁˖ : </sub> poor sleep  . may unfollow you on accident due to my shitty ass phone... pls do tell me oomfs. read my rentry for personal info!!<br>
 <img src="https://files.catbox.moe/6apcff.gif"/><br> 
-<b> pony town info, read okay...?</b> <br>
+<b> pony town stuff, read okay...?</b> <br>
 C+H ok ! I get bored of it easily if we don't yap though. but feel free to interact! I love lovveee interacting with new people. ￬￬<br>
-<b><a href="https://fluffle.cc/lighthouse">more stuff for my pony town info here.</a></b>
+<b><a href="https://fluffle.cc/lighthouse">more detailed info for my pony town here.</a></b>
 
 <p align="center"> <b>～ oomf wall !!!!!!჻჻჻჻჻</b> </p>
 
