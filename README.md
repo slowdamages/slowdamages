@@ -1,4 +1,4 @@
-**𓂁𓂄** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=294038&rightColor=701313&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀ ͜ all ***my*** info ***!!***
+**౿　　　˘** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=294038&rightColor=701313&type=total&label=patients&style=lower)  ͜ all ***my*** info
 <p align="center"> <sup><b><a href="https://anaxa.straw.page">strawpage</a>...　 ‎ my links˒</b> ‎  ‎  ‎ <a href="https://rentry.co/yaoshi">rentry</a> 　╱　　<a href="https://rentry.co/trust">other</a>　</sup> <br>
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled3_20260301224322.png"/>
 <br><sub>🩸.݁˖ : </sub> poor sleep  . may unfollow you on accident due to my shitty ass phone... pls do tell me oomfs. read my rentry for personal info!!<br>
