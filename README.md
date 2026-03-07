@@ -13,8 +13,8 @@
 
  </div>
  
-**౿　　　˘** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=7a946f&rightColor=524d3d&type=total&label=patients&style=lower)
+**౿　　　˘** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=7a946f&rightColor=524d3d&type=total&label=patients&style=lower) ᧔♡᧓
 
 
-<img src="https://i.postimg.cc/0jzSgtmX/NNGch-MBv-TUuxqo-PVj-IIh.png"/>
+<img width="80%" src="https://i.postimg.cc/0jzSgtmX/NNGch-MBv-TUuxqo-PVj-IIh.png"/>
 made by oomf @/STARSAREFADINGAWAY.. LOOK AT WIfE!!! he's so gorgeous 
