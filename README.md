@@ -5,7 +5,7 @@
 <img width="45%" src="https://i.postimg.cc/T39hPZ9s/dontstealts-ezgif-com-optimize.gif"><br>      
 
 ***poor sleep***. DNC ok..? skin style changes very often. 
-*Feel free to sit ‎ &͟&͟ ‎ interact with me. C+H is always welcome.*
+*Feel free to sit ‎ &͟&͟ ‎ interact with me. C+H is always welcome. same fandoms please interact !*
 
 
 𓏼<a href="https://rentry.co/trust">rentry</a>   ⃨۪̃۟ ᤳ 
@@ -13,8 +13,8 @@
 
  </div>
  
-**౿　　　˘** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=294038&rightColor=701313&type=total&label=patients&style=lower)
+**౿　　　˘** ![Views Counter](https://views-counter.vercel.app/badge?pageId=slowdamages&leftColor=7a946f&rightColor=524d3d&type=total&label=patients&style=lower)
 
 
 <img src="https://i.postimg.cc/0jzSgtmX/NNGch-MBv-TUuxqo-PVj-IIh.png"/>
-made by oomf @/STARSAREFADINGAWAY.. LOOK AT MY WOFE!!! he's so gorgeous 
+made by oomf @/STARSAREFADINGAWAY.. LOOK AT WIfE!!! he's so gorgeous 
