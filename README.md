@@ -8,7 +8,7 @@
 *Feel free to sit ‎ &͟&͟ ‎ interact with me. same fandoms please interact ! no dni..*
 
 
-‎  ‎ ‎  ‎ 𓏼<a href="https://rentry.co/trust">rentry</a>   ⃨۪̃۟ ᤳ  <a href="https://rentry.co/gorudoshippu">interests</a> ུ۪۪. ༢<a href="https://rentry.co/yaoshi">main</a> 𓈒ֺּׅ⠀ ݂ ༷
+‎  ‎ ‎  ‎ 𓏼<a href="https://rentry.co/trust">rentry</a>   ⃨۪̃۟ ᤳ  <a href="https://rentry.co/gorudoshippu">interests</a> ུ۪۪. ༢<a href="https://rentry.co/luu">extended</a> 𓈒ֺּׅ⠀ ݂ ༷
 
 
  </div>
