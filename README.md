@@ -5,7 +5,7 @@
 <img width="45%" src="https://i.postimg.cc/T39hPZ9s/dontstealts-ezgif-com-optimize.gif"><br>      
 
 ***poor sleep***. DNC ok..? skin style changes very often. 
-*Feel free to sit ‎ &͟&͟ ‎ interact with me. C+H is always welcome. same fandoms please interact !*
+*Feel free to sit ‎ &͟&͟ ‎ interact with me. C+H is always welcome. same fandoms please interact ! no dni*
 
 
 ‎  ‎ ‎  ‎ 𓏼<a href="https://rentry.co/trust">rentry</a>   ⃨۪̃۟ ᤳ  <a href="https://rentry.co/gorudoshippu">interests</a> ུ۪۪. ༢<a href="https://rentry.co/yaoshi">main</a> 𓈒ֺּׅ⠀ ݂ ༷
