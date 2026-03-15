@@ -4,8 +4,8 @@
 
 <img width="45%" src="https://i.postimg.cc/T39hPZ9s/dontstealts-ezgif-com-optimize.gif"><br>      
 
-***poor sleep + mood swings***. DNC ok..? skin style changes very often. 
-*Feel free to sit ‎ &͟&͟ ‎ interact with me. same fandoms please interact ! no dni..*
+***poor sleep + mood swings***. DNC, skin style changes very often. 
+*Feel free to sit ‎ &͟&͟ ‎ int with me. same fandoms please interact ! no dni. anti-harassment.*
 
 
 ‎  ‎ ‎  ‎ 𓏼<a href="https://rentry.co/trust">rentry</a>   ⃨۪̃۟ ᤳ  <a href="https://rentry.co/gorudoshippu">interests</a> ུ۪۪. ༢<a href="https://rentry.co/luu">extended</a> 𓈒ֺּׅ⠀ ݂ ༷
